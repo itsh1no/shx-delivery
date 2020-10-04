@@ -9,4 +9,4 @@ Hello, I made you a seller of stolen goods today. Imported from Rolex sell (E) b
 
 Merhabalar bugun sizlere çalıntı eşya satıcısını yaptım. Rolex sell'den importlanarak (E) bandrollu istediğiniz eşyayı satmayı yaptım iyi kullanımlar.
 
-Preview : https://www.youtube.com/watch?v=Y9XZHO1-f2I&feature=emb_title
+Preview : https://www.youtube.com/watch?v=LIl4e43OSlw
